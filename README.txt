@@ -1,2 +1,2 @@
 HELLO Dryk
-novai vetka
+novai vetka sssssssss
